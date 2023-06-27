@@ -1,2 +1,6 @@
 # CheckpointExercise
-Aldhair Vera: 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
+Aldhair Vera
+Camila Robles
+Juan Camilo Luis Gonzalez
+David Perez
+Juan Salinas
